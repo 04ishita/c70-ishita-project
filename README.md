@@ -1,0 +1,1 @@
+# c70-ishita-project
